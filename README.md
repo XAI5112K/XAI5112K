@@ -1,5 +1,8 @@
 # 🚀 XAI5112K – Xai Presale: The Next Big Opportunity in Crypto!  
 
+👉 **Join the Xai Presale now using the code XAI5112K:**  
+[**Official Xai Presale Page**](https://healthpulseaccess.com/XAI5112K) 
+
 ## 🔥 Get in Early – Don't Miss the Xai Presale!  
 
 The **Xai Presale (XAI5112K)** is live! This project is generating massive hype, and early investors are positioning themselves for **huge potential gains**.  
